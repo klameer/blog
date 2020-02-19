@@ -30,7 +30,8 @@ ESWARAN BROTHERS EXPORTS (PVT) LTD | Everyone Else
 ![Alt](https://raw.githubusercontent.com/klameer/blog/master/teas/img_grade_mix.png)
 
 ## Buy Trend
-Is ESWARAN BROTHERS buying efficiently
+Is ESWARAN BROTHERS buying efficiently  
+
 ESWARAN BROTHERS | Everyone Else
 ---- | ----
 0.22 | 0.016
